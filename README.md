@@ -2,7 +2,7 @@
 
 # Kartikey Vyas
 
-### Business Analyst · Digital Builder · MadOverBuildings
+### Domain knowledge · Digital execution · MadOverBuildings
 
 *Bridging the gap between construction operations and modern technology —*
 *one thoughtful tool at a time.*
